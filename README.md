@@ -1,2 +1,6 @@
 # tetek-montok
 Just fun
+Hai masyarakat... 
+Jangan kebanyakan negatif thinking ke orang lain ya... 
+
+Salam dari saya tetek-montok
